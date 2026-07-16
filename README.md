@@ -49,4 +49,4 @@ https://youtu.be/2t_s3Yl05ig (게임 시연 및 설명 영상 유튜브 링크)
 ## 개발자 이메일
 김경환 - kim1234312@gmail.com
 
-김도영 - rlaehdudqkqh@naver.com
+김도영 - rlaehdud1013@naver.com
